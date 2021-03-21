@@ -1,0 +1,1 @@
+ngredients. 1 tbsp olive oil, finely chopped. 2 medium onions, finely chopped. 2 carrots, trimmed and finely chopped. 2 celery sticks, finely chopped. 2 garlic cloves finely chopped. 2-3 sprigs rosemary leaves picked and finely chopped. 500g beef mince.
